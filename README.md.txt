@@ -1,1 +1,0 @@
-Projetos de Aquitetura de Computadores no Software Project Maneger desde o Registrado ate a UCP.
